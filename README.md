@@ -7,4 +7,4 @@ Meus hobbies são jogar jogos do tipo Hollow Knight *jogo perfeito😭* ler mang
 
 Uma palavra em itálico _palavra_ 👍
 
-Meu email caso queiram entrar em contato de modo primitivo *isso é uma piada* dobbob072009@gmail.com 
+Meu email caso queiram entrar em contato de modo primitivo (isso é uma piada*) dobbob072009@gmail.com 
